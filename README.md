@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DthYb
+- 👀 I’m interested in 3D animations and story creation.
+- 🌱 I’m currently learning coding.
+- 📫 mail : osiris.fd7@gmail.com
