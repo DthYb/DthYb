@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @DthYb
 - 👀 I’m interested in 3D animations and story creation.
-- 🌱 I’m currently working at altazion services and studying at For Each Academy.
+- 🌱 I’m currently studying at For Each Academy and looking for a job :/.
 - 📫 mail : osiris.fd7@gmail.com
