@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @DthYb
 - 👀 I’m interested in 3D animations and story creation.
-- 🌱 I’m currently studying at For Each Academy and working at Promesse de FLeurs.
+- 🌱 I’m currently studying at For Each Academy and working at Promesse de Fleurs.
 - 📫 mail : osiris.fd7@gmail.com
